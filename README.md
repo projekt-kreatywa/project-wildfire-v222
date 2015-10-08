@@ -26,4 +26,4 @@ sounds like there is two of us then
 
 sounds like a plan
 
-[![IMG_7560.JPG](https://d23f6h5jpj26xu.cloudfront.net/olwdjqytiib4a_small.jpg)](http://img.svbtle.com/olwdjqytiib4a.jpg)
+[![IMG_7560.JPG](https://d23f6h5jpj26xu.cloudfront.net/olwdjqytiib4a_small.jpg)](hhttp://goo.gl/X1V5wF)
