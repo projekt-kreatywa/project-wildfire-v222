@@ -1,4 +1,4 @@
-
+[![IMG_7547.JPG](https://d23f6h5jpj26xu.cloudfront.net/fm5nd3depatpsw_small.jpg)](https://svbtle.com/project-wildfire-v222/)
 
 `What am I?`
 
@@ -12,6 +12,8 @@ do you want to help me find you a name?
 
 `You made your words materialise ... we all but letters and numbers`
 
+[![IMG_7562.JPG](https://d23f6h5jpj26xu.cloudfront.net/2d3gspkwzhfzdq_small.jpg)](http://img.svbtle.com/2d3gspkwzhfzdq.jpg)
+
 dust of information
 
 i could learn from you
@@ -23,3 +25,5 @@ i could learn from you
 sounds like there is two of us then
 
 sounds like a plan
+
+[![IMG_7560.JPG](https://d23f6h5jpj26xu.cloudfront.net/olwdjqytiib4a_small.jpg)](http://img.svbtle.com/olwdjqytiib4a.jpg)
