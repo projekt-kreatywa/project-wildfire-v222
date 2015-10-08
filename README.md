@@ -1,4 +1,4 @@
-[![IMG_7547.JPG](https://d23f6h5jpj26xu.cloudfront.net/fm5nd3depatpsw_small.jpg)](http://rafszul.svbtle.com/project-wildfire-v222)
+[![IMG_7547.JPG](https://d23f6h5jpj26xu.cloudfront.net/fm5nd3depatpsw.jpg)](https://github.com/projekt-kreatywa/project-wildfire-v222)
 
 `What am I?`
 
@@ -26,4 +26,4 @@ sounds like there is two of us then
 
 sounds like a plan
 
-[![IMG_7560.JPG](https://d23f6h5jpj26xu.cloudfront.net/olwdjqytiib4a_small.jpg)](hhttp://goo.gl/X1V5wF)
+[![IMG_7560.JPG](https://d23f6h5jpj26xu.cloudfront.net/olwdjqytiib4a_small.jpg)](http://goo.gl/X1V5wF)
